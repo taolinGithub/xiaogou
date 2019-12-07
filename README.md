@@ -2,6 +2,4 @@
 xiaogou
 xiaomao
 xiaonaofu
-hh
-yghjghjgh
-123456789
+xxxxxxxx
